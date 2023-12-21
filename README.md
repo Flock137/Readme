@@ -2,7 +2,7 @@
 
 ***Clues***
 
-I accidentally delete the actual write-up, and I don't want to write again it anymore, so here are more detailed clues for you:
+I accidentally delete the actual write-up, and I don't want to write again anymore, so here are more detailed clues for you:
 
 
 
